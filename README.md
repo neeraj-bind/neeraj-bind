@@ -1,6 +1,6 @@
 [![](https://visitcount.itsvg.in/api?id=neeraj-bind&icon=0&color=0)](https://visitcount.itsvg.in)
 
-- 📫 How to reach me **pankajbind30@gmail.com**
+- 📫 How to reach me **neerajbind100@gmail.com**
 
 <h2 align="left">GitHub Stats:</h2>
 
